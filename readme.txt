@@ -1,1 +1,1 @@
-Run, fools! Rebase incoming!
+Run, fools! Rebase is incoming!
